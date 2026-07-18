@@ -1,0 +1,1 @@
+# bizstayz-assets
